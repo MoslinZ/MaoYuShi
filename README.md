@@ -115,4 +115,5 @@ https://web.archive.org/web/20051228071842/http://www.yirr.ngo.cn/indexD1.htm
 ![学院教员图](https://github.com/MoslinZ/TiejunWen/blob/main/indexD1.htm.jpg)
 晏阳初乡村建设学院官网探讨草根NGO中国草根民间组织能力建设与农村发展研讨会日程
 https://web.archive.org/web/20051228075629/http://www.yirr.ngo.cn/indexD14.htm
+![晏阳初乡村建设学院官网探讨草根NGO中国草根民间组织能力建设与农村发展研讨会日程图](https://github.com/MoslinZ/TiejunWen/blob/main/indexD14.htm.jpg)
 
