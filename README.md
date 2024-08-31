@@ -73,12 +73,11 @@ https://web.archive.org/web/20051230020019/http://www.yirr.ngo.cn/
 
 搜狐网三农温铁军专栏2004年
 https://web.archive.org/web/20040803120657/http://business.sohu.com/wentiejun.shtml
-
 ![温铁军专栏高清图](https://github.com/MoslinZ/TiejunWen/blob/main/wentiejun.shtml.jpg)
 
 搜狐财经【中国经济思想库】茅于轼、温铁军、林毅夫、郎咸平等人
 https://web.archive.org/web/20040825035522/http://business.sohu.com:80/s221226209.shtml
-
+![中国经济思想库高清图](https://github.com/MoslinZ/TiejunWen/blob/main/s221226209.shtml.jpg)
 
 
 ### :surfer:经历
