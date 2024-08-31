@@ -1,4 +1,4 @@
-# TiejunWen
+# TiejunWen温铁军
 🔥公知温铁军与茅于轼NGO履历梳理👇👇👇
 https://docs.google.com/document/d/1QXx4v93P9esBfRgA5HkssuOpLUigSN11rmPwZnCVtGk/
 持续更新公知『温铁军』与『茅于轼』NGO履历👆👆👆。
@@ -64,13 +64,6 @@ https://web.archive.org/web/20041014000431/http://business.sohu.com/s2004/zhishi
 2024年维基百科wikipedia『温铁军』简体中文版修正
 https://web.archive.org/web/20240322023226/https://zh.m.wikipedia.org/wiki/%E6%B8%A9%E9%93%81%E5%86%9B
 
-
-晏阳初乡村建设学院官网存档一2004年
-https://web.archive.org/web/20041009134052/http://www.yirr.ngo.cn/
-
-晏阳初乡村建设学院官网存档二2005年
-https://web.archive.org/web/20051230020019/http://www.yirr.ngo.cn/
-
 搜狐网三农温铁军专栏2004年
 https://web.archive.org/web/20040803120657/http://business.sohu.com/wentiejun.shtml
 ![温铁军专栏高清图](https://github.com/MoslinZ/TiejunWen/blob/main/wentiejun.shtml.jpg)
@@ -98,3 +91,28 @@ https://web.archive.org/web/20040825035522/http://business.sohu.com:80/s22122620
 | 2000      | 赴美国杜克大学进修，期间应邀到约翰霍普金斯大学、华盛顿大学、加州大学伯克利分校和卡特中心讲学。|担任中国经济体制改革研究会副秘书长、中国改革杂志社常务副社长兼总编缉                                           |
 | 2003      | 任晏阳初乡村建设学院院长                         |
 | ...       |                                                              |
+
+
+# 温铁军名作【民间日本】
+爱思想网【民间日本】温铁军共产党员参拜靖国神社
+https://web.archive.org/web/20130821160212/https://www.aisixiang.com/data/6501.html
+
+乌有之乡【民间日本】温铁军共产党员参拜靖国神社（访问时需要将浏览器切换成电脑模式）
+https://web.archive.org/web/20230320000915/http://www.wyzxwk.com/Article/sichao/2009/09/1378.html
+
+华中科技大学（中国乡村治理研究中心）【民间日本】温铁军共产党员参拜靖国神社
+https://web.archive.org/web/20170926082125/http://www.snzg.net/article/2006/1028/article_28.html
+
+# 晏阳初乡村建设学院
+晏阳初乡村建设学院官网存档一2004年
+https://web.archive.org/web/20041009134052/http://www.yirr.ngo.cn/
+
+晏阳初乡村建设学院官网存档二2005年
+https://web.archive.org/web/20051230020019/http://www.yirr.ngo.cn/
+
+2004年公知温铁军邀请公知茅于轼、李来来、公知梁从诫、刘老石（刘湘波）、高战作为晏阳初乡村建设学院首批教员
+https://web.archive.org/web/20051228071842/http://www.yirr.ngo.cn/indexD1.htm
+
+晏阳初乡村建设学院官网探讨草根NGO中国草根民间组织能力建设与农村发展研讨会日程
+https://web.archive.org/web/20051228075629/http://www.yirr.ngo.cn/indexD14.htm
+
