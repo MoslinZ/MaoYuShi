@@ -1,8 +1,8 @@
 # TiejunWen
-🔥公知温铁军与茅于轼NGO履历梳理
+🔥公知温铁军与茅于轼NGO履历梳理👇👇👇
 https://docs.google.com/document/d/1QXx4v93P9esBfRgA5HkssuOpLUigSN11rmPwZnCVtGk/
 
-持续更新公知『温铁军』与『茅于轼』NGO履历。
+持续更新公知『温铁军』与『茅于轼』NGO履历👆👆👆。
 
 
 
@@ -65,10 +65,10 @@ https://web.archive.org/web/20041014000431/http://business.sohu.com/s2004/zhishi
 https://web.archive.org/web/20240322023226/https://zh.m.wikipedia.org/wiki/%E6%B8%A9%E9%93%81%E5%86%9B
 
 
-晏阳初乡村建设学院官网存档一
+晏阳初乡村建设学院官网存档一2004年
 https://web.archive.org/web/20041009134052/http://www.yirr.ngo.cn/ 2004年10月9日
 
-晏阳初乡村建设学院官网存档二
+晏阳初乡村建设学院官网存档二2005年
 https://web.archive.org/web/20051230020019/http://www.yirr.ngo.cn/ 2005年12月30日
 
 搜狐网三农温铁军专栏2004年
