@@ -10,8 +10,8 @@ https://docs.google.com/document/d/1QXx4v93P9esBfRgA5HkssuOpLUigSN11rmPwZnCVtGk/
 搜狐网2004年温铁军专栏个人详情
 https://web.archive.org/web/20040907102826/http://business.sohu.com/2004/05/17/79/article220157998.shtml
 
-> == 生平 ==
-男性，汉族，祖籍河北昌黎，1951年5月出生于北京。法学士，经济管理学博士，政府特殊津贴专家。
+
+一、男性，汉族，祖籍河北昌黎，1951年5月出生于北京。法学士，经济管理学博士，政府特殊津贴专家。
 
 2004年任职：中国经济体制改革杂志社总编缉，中国体改研究会常务理事、副秘书长，晏阳初乡村建设学院理事长兼院长。
 
