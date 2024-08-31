@@ -74,7 +74,7 @@ https://web.archive.org/web/20051230020019/http://www.yirr.ngo.cn/ 2005年12月3
 
 搜狐网三农温铁军专栏2004年
 https://web.archive.org/web/20040803120657/http://business.sohu.com/wentiejun.shtml 2004年9月7日
-
+![温铁军专栏高清图](https://github.com/MoslinZ/TiejunWen/blob/main/wentiejun.shtml.jpg)
 
 
 
