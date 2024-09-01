@@ -93,7 +93,7 @@ https://web.archive.org/web/20040825035522/http://business.sohu.com:80/s22122620
 | ...       |                                                              |
 
 
-# 温铁军名作【民间日本】
+# 温铁军名作【民间日本】2004年12月17～20日
 爱思想网【民间日本】温铁军共产党员参拜靖国神社
 https://web.archive.org/web/20130821160212/https://www.aisixiang.com/data/6501.html
 
@@ -102,7 +102,10 @@ https://web.archive.org/web/20230320000915/http://www.wyzxwk.com/Article/sichao/
 
 华中科技大学（中国乡村治理研究中心）【民间日本】温铁军共产党员参拜靖国神社
 https://web.archive.org/web/20170926082125/http://www.snzg.net/article/2006/1028/article_28.html
+![游就馆图](https://github.com/MoslinZ/TiejunWen/blob/main/Images/%E9%9D%96%E5%9B%BD%E7%A5%9E%E7%A4%BE-%E6%B8%B8%E5%B0%B1%E9%A6%86-v0-4ab1cgz.png)
 
+日本长井市彩虹计划考察报告【温铁军  刘健芝】2004年12月17、18日
+https://web.archive.org/web/20051228085142/http://www.yirr.ngo.cn/indexH51.htm
 # 晏阳初乡村建设学院
 晏阳初乡村建设学院官网存档一2004年
 https://web.archive.org/web/20041009134052/http://www.yirr.ngo.cn/
