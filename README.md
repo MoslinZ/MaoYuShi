@@ -1,4 +1,4 @@
-# TiejunWen温铁军
+1# TiejunWen温铁军
 🔥公知温铁军与茅于轼NGO履历梳理👇👇👇
 https://docs.google.com/document/d/1QXx4v93P9esBfRgA5HkssuOpLUigSN11rmPwZnCVtGk/
 持续更新公知『温铁军』与『茅于轼』NGO履历👆👆👆。
@@ -63,6 +63,7 @@ https://web.archive.org/web/20041014000431/http://business.sohu.com/s2004/zhishi
 
 2024年维基百科wikipedia『温铁军』简体中文版修正
 https://web.archive.org/web/20240322023226/https://zh.m.wikipedia.org/wiki/%E6%B8%A9%E9%93%81%E5%86%9B
+
 https://web.archive.org/web/20240322044932/https://zh.m.wikipedia.org/w/index.php?title=%E6%B8%A9%E9%93%81%E5%86%9B&diff=prev&oldid=81985911&title=%E6%B8%A9%E9%93%81%E5%86%9B&diffonly=1
 
 搜狐网三农温铁军专栏2004年
@@ -132,8 +133,7 @@ https://web.archive.org/web/20051228075629/http://www.yirr.ngo.cn/indexD14.htm
 ![晏阳初乡村建设学院官网探讨草根NGO中国草根民间组织能力建设与农村发展研讨会日程图](https://github.com/MoslinZ/TiejunWen/blob/main/indexD14.htm.jpg)
 
 环境与发展研究所-简称“环发所”
-LAED-CHINA（重要成员：曲格平、茅于轼  Yushi Mao、梁从诫  Congjie Liang、李来来）等
-https://web.archive.org/web/20080724195034/http://www.lead.org.cn/leadcn/board/
+LAED-CHINA（重要成员：曲格平、茅于轼  Yushi Mao、梁从诫  Congjie Liang、李来来）等https://web.archive.org/web/20080724195034/http://www.lead.org.cn/leadcn/board/
 https://web.archive.org/web/20030404205422/http://www.grchina.com/qiang/lead/orientation.htm
 
 温铁军2001年在LEAD-China交流研讨(红色标注区) Dr. Wen Tiejun, Editor-in-Chief, China Reforms Journal
