@@ -63,6 +63,7 @@ https://web.archive.org/web/20041014000431/http://business.sohu.com/s2004/zhishi
 
 2024年维基百科wikipedia『温铁军』简体中文版修正
 https://web.archive.org/web/20240322023226/https://zh.m.wikipedia.org/wiki/%E6%B8%A9%E9%93%81%E5%86%9B
+https://web.archive.org/web/20240322044932/https://zh.m.wikipedia.org/w/index.php?title=%E6%B8%A9%E9%93%81%E5%86%9B&diff=prev&oldid=81985911&title=%E6%B8%A9%E9%93%81%E5%86%9B&diffonly=1
 
 搜狐网三农温铁军专栏2004年
 https://web.archive.org/web/20040803120657/http://business.sohu.com/wentiejun.shtml
@@ -119,10 +120,29 @@ https://web.archive.org/web/20041009134052/http://www.yirr.ngo.cn/
 晏阳初乡村建设学院官网存档二2005年
 https://web.archive.org/web/20051230020019/http://www.yirr.ngo.cn/
 
+温铁军入选2004年南方人物周刊公知榜时，晏阳初乡村建设学院官网为此头条刊登了这则“喜”报
+https://web.archive.org/web/20041009202058/http://www.yirr.ngo.cn/indexCC1.htm
+
+
 2004年公知温铁军邀请公知茅于轼、李来来、公知梁从诫、刘老石（刘湘波）、高战作为晏阳初乡村建设学院首批教员
 https://web.archive.org/web/20051228071842/http://www.yirr.ngo.cn/indexD1.htm
 ![学院教员图](https://github.com/MoslinZ/TiejunWen/blob/main/indexD1.htm.jpg)
 晏阳初乡村建设学院官网探讨草根NGO中国草根民间组织能力建设与农村发展研讨会日程
 https://web.archive.org/web/20051228075629/http://www.yirr.ngo.cn/indexD14.htm
 ![晏阳初乡村建设学院官网探讨草根NGO中国草根民间组织能力建设与农村发展研讨会日程图](https://github.com/MoslinZ/TiejunWen/blob/main/indexD14.htm.jpg)
+
+环境与发展研究所-简称“环发所”
+LAED-CHINA（重要成员：曲格平、茅于轼  Yushi Mao、梁从诫  Congjie Liang、李来来）等
+https://web.archive.org/web/20080724195034/http://www.lead.org.cn/leadcn/board/
+https://web.archive.org/web/20030404205422/http://www.grchina.com/qiang/lead/orientation.htm
+
+温铁军2001年在LEAD-China交流研讨(红色标注区) Dr. Wen Tiejun, Editor-in-Chief, China Reforms Journal
+https://web.archive.org/web/20080828191036/http://www.lead.org.cn/leadcn/national/curriculum/year1/cohort9.htm
+![图]()
+
+IED/LEAD-China 举办第五期“可持续发展领导型人才国内培训班”茅于轼、温铁军、李来来
+https://web.archive.org/web/20080828190513/http://www.lead.org.cn/leadcn/national/curriculum/year1/LEADChina_5th_zh.htm
+
+1991年由洛克菲勒基金会创立LEAD国际，随后并引入中国
+https://web.archive.org/web/20030220093844/http://www.lead.org.cn/lead/vision/
 
