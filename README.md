@@ -138,7 +138,7 @@ https://web.archive.org/web/20030404205422/http://www.grchina.com/qiang/lead/ori
 
 温铁军2001年在LEAD-China交流研讨(红色标注区) Dr. Wen Tiejun, Editor-in-Chief, China Reforms Journal
 https://web.archive.org/web/20080828191036/http://www.lead.org.cn/leadcn/national/curriculum/year1/cohort9.htm
-![图]()
+![LEAD图](https://github.com/MoslinZ/TiejunWen/blob/main/Images/cohort9.html.jpg)
 
 IED/LEAD-China 举办第五期“可持续发展领导型人才国内培训班”茅于轼、温铁军、李来来
 https://web.archive.org/web/20080828190513/http://www.lead.org.cn/leadcn/national/curriculum/year1/LEADChina_5th_zh.htm
