@@ -155,3 +155,8 @@ https://web.archive.org/web/20080828190513/http://www.lead.org.cn/leadcn/nationa
 1991年由洛克菲勒基金会创立LEAD国际，随后并引入中国
 https://web.archive.org/web/20030220093844/http://www.lead.org.cn/lead/vision/
 ![图](https://github.com/MoslinZ/TiejunWen/blob/main/Images/vision.jpg)
+
+# 天则经济研究所
+以茅于轼为首的中国带路党大本营【【天则经济研究所】】超过百人学术委员会研究员温铁军位列其中
+![图](https://github.com/MoslinZ/TiejunWen/blob/main/tzjjyjsindex.php.jpg)
+
