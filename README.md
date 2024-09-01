@@ -1,7 +1,8 @@
 # TiejunWen温铁军
-🔥公知温铁军与茅于轼NGO履历梳理👇👇👇
+🔥公知温铁军现形记与茅于轼NGO履历梳理👇👇👇
 https://docs.google.com/document/d/1QXx4v93P9esBfRgA5HkssuOpLUigSN11rmPwZnCVtGk/
-持续更新公知『温铁军』与『茅于轼』NGO履历👆👆👆。
+
+持续更新公知『温铁军』与『茅于轼』NGO履历👆👆👆
 
 
 
