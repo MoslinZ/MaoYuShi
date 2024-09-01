@@ -97,11 +97,8 @@ https://web.archive.org/web/20040825035522/http://business.sohu.com:80/s22122620
 # 温铁军名作【民间日本】2004年12月17～20日靖国神社游就馆
 
 原文部分“他的看法确有道理，我们离开前抽空去浏览了靖国神社的“游就馆”，那里的战争史料和文字解释，明显地反映出一种把日本近现代史上所有战争都合乎逻辑地解释为“正义”的意图。
+![游就馆图](https://github.com/MoslinZ/TiejunWen/blob/main/Images/article_28.html.jpg)
 
-　　
-
-　　三、参与NPO事业的人”
-  
 爱思想网【民间日本】温铁军共产党员参拜靖国神社
 https://web.archive.org/web/20130821160212/https://www.aisixiang.com/data/6501.html
 
@@ -114,6 +111,9 @@ https://web.archive.org/web/20170926082125/http://www.snzg.net/article/2006/1028
 
 日本长井市彩虹计划考察报告【温铁军  刘健芝】2004年12月17、18日
 https://web.archive.org/web/20051228085142/http://www.yirr.ngo.cn/indexH51.htm
+乌有之乡【日本长井市彩虹计划考察报告】温铁军、刘健芝
+https://web.archive.org/web/20240104162817/http://m.wyzxwk.com/content.php?classid=13&id=1376
+
 # 晏阳初乡村建设学院
 晏阳初乡村建设学院官网存档一2004年
 https://web.archive.org/web/20041009134052/http://www.yirr.ngo.cn/
