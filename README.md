@@ -141,6 +141,7 @@ https://web.archive.org/web/20051228075629/http://www.yirr.ngo.cn/indexD14.htm
 # 环境发展研究LEAD
 环境与发展研究所-简称“环发所”
 LAED-CHINA（重要成员：曲格平、茅于轼  Yushi Mao、梁从诫  Congjie Liang、李来来）等
+![环境发展研究LEAD](https://github.com/MoslinZ/TiejunWen/blob/main/Images/board.jpg)
 
 https://web.archive.org/web/20080724195034/http://www.lead.org.cn/leadcn/board/
 
