@@ -141,6 +141,34 @@ https://web.archive.org/web/20051228075629/http://www.yirr.ngo.cn/indexD14.htm
 晏阳初1904年仅11岁就成为了基督徒Baptized as a Christian（来源权威的晏阳初国际乡村建设学院官网存档IIRR.ORG）
 https://web.archive.org/web/20031121095346/www.iirr.org/ycjamesyen.htm
 ![11岁的晏阳初成为基督徒](https://github.com/MoslinZ/TiejunWen/blob/main/ycjamesyen.html.jpg)
+
+晏阳初的岳父是基督教牧师：Huie Kin（许芹）为“纽约中华基督长老会会长”
+https://web.archive.org/web/20231222071900/https://www.fcpc.org/history.php?lang=chinese
+![基督教牧师：Huie Kin（许芹）图](https://github.com/MoslinZ/TiejunWen/blob/main/history.php.jpg)
+
+晏阳初的妻子：许雅丽（哥伦比亚师范学院体育系，基督）
+
+许芹后代家族网
+https://huiekin.org/
+https://web.archive.org/web/20200929093619/https://huiekin.org/
+
+晏阳初Y. C. James Yen 晏陽初
+https://www.geni.com/people/Y-C-James-Yen-%E6%99%8F%E9%99%BD%E5%88%9D/6000000021412122657
+https://web.archive.org/web/20240228090050/https://www.geni.com/people/Y-C-James-Yen-%E6%99%8F%E9%99%BD%E5%88%9D/6000000021412122657
+
+许雅丽Alice Ordania Yen
+ (晏阳初之妻)
+https://www.geni.com/people/Alice-Yen/6000000021412171455
+https://web.archive.org/web/20240228105236/https://www.geni.com/people/Alice-Yen/6000000021412171455
+
+许芹Huie Kin（晏阳初之岳父）
+https://www.geni.com/people/Huie-Kin/6000000082772592110
+https://web.archive.org/web/20240228093632/https://www.geni.com/people/Huie-Kin/6000000082772592110
+
+晏阳初从小就信奉基督教延伸阅读：（外网记录晏阳初生平不避讳信仰基督教，在中国传播时却把重要的基督教事实掩盖了）
+Yan, Yangchu (Yen, Y. C. James)
+https://web.archive.org/web/20071012200108/http://www.bdcconline.net/bdcc_stories/china/hebei/yan_yangchu.html
+
 # 环境发展研究LEAD
 环境与发展研究所-简称“环发所”
 LAED-CHINA（重要成员：曲格平、茅于轼  Yushi Mao、梁从诫  Congjie Liang、李来来）等
