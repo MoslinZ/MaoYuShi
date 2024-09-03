@@ -101,13 +101,13 @@ https://web.archive.org/web/20040825035522/http://business.sohu.com:80/s22122620
 原文部分“他的看法确有道理，我们离开前抽空去浏览了靖国神社的“游就馆”，那里的战争史料和文字解释，明显地反映出一种把日本近现代史上所有战争都合乎逻辑地解释为“正义”的意图。
 ![游就馆图](https://github.com/MoslinZ/TiejunWen/blob/main/Images/article_28.html.jpg)
 
-爱思想网【民间日本】温铁军共产党员参拜靖国神社
+爱思想网【民间日本】温铁军
 https://web.archive.org/web/20130821160212/https://www.aisixiang.com/data/6501.html
 
-乌有之乡【民间日本】温铁军共产党员参拜靖国神社（访问时需要将浏览器切换成电脑模式）
+乌有之乡【民间日本】参拜靖国神社（访问时需要将浏览器切换成电脑模式）
 https://web.archive.org/web/20230320000915/http://www.wyzxwk.com/Article/sichao/2009/09/1378.html
 
-华中科技大学（中国乡村治理研究中心）【民间日本】温铁军共产党员参拜靖国神社
+华中科技大学（中国乡村治理研究中心）【民间日本】温铁军
 https://web.archive.org/web/20170926082125/http://www.snzg.net/article/2006/1028/article_28.html
 ![游就馆图](https://github.com/MoslinZ/TiejunWen/blob/main/Images/%E9%9D%96%E5%9B%BD%E7%A5%9E%E7%A4%BE-%E6%B8%B8%E5%B0%B1%E9%A6%86-v0-4ab1cgz.png)
 
