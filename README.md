@@ -138,6 +138,9 @@ https://web.archive.org/web/20051228071842/http://www.yirr.ngo.cn/indexD1.htm
 https://web.archive.org/web/20051228075629/http://www.yirr.ngo.cn/indexD14.htm
 ![晏阳初乡村建设学院官网探讨草根NGO中国草根民间组织能力建设与农村发展研讨会日程图](https://github.com/MoslinZ/TiejunWen/blob/main/indexD14.htm.jpg)
 
+晏阳初1904年仅11岁就成为了基督徒Baptized as a Christian（来源权威的晏阳初国际乡村建设学院官网存档IIRR.ORG）
+https://web.archive.org/web/20031121095346/www.iirr.org/ycjamesyen.htm
+![11岁的晏阳初成为基督徒](https://github.com/MoslinZ/TiejunWen/blob/main/ycjamesyen.html.jpg)
 # 环境发展研究LEAD
 环境与发展研究所-简称“环发所”
 LAED-CHINA（重要成员：曲格平、茅于轼  Yushi Mao、梁从诫  Congjie Liang、李来来）等
