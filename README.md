@@ -185,6 +185,12 @@ WALT DISNEY: "Whose animated cartoons, with their highly original use of sound a
 
 晏阳初入选理由：JAMES Y. C. YEN: "Illustrious inventor of a simple, easily mastered system of written Chinese whereby the book of knowledge has been opened to millions of previously illiterate minds, a leader of his great people in applying scien-tific methods to the enrichment of their soil and the increase of the fruits of their toil.”
 
+迪斯尼“政治正确”的LGBT越演越烈
+https://web.archive.org/web/20240107053232/https://m.sohu.com/a/534437664_115479/?pvid=000115_3w_a
+https://web.archive.org/web/20240107053254/https://crossing.cw.com.tw/article/17495
+https://web.archive.org/web/20240107053437/https://posts.careerengine.us/p/624441f478ed090df7677a1f
+https://web.archive.org/web/20240107053539/https://www.indiewire.com/features/general/disney-lgbtq-representation-parks-history-1234873940/
+
 # 环境发展研究LEAD
 环境与发展研究所-简称“环发所”
 LAED-CHINA（重要成员：曲格平、茅于轼  Yushi Mao、梁从诫  Congjie Liang、李来来）等
