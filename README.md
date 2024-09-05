@@ -177,6 +177,7 @@ https://web.archive.org/web/20071012200108/http://www.bdcconline.net/bdcc_storie
 
 （Harvard哈佛大学档案325页）最具争议的晏阳初“十大伟人？”捧哏奖Wikipedia争议晏阳初“十大伟人”
 https://web.archive.org/web/20240104213225/https://articles.adsabs.harvard.edu/cgi-bin/nph-iarticle_query?bibcode=1943PA.....51..323.&db_key=AST&page_ind=1&plate_select=NO&data_type=GIF&type=SCREEN_GIF&classic=YES
+
 约翰.杜威 公知鼻祖 『胡适』、陶行知、冯友兰共同的美国老师
 JOHN DEWEY: "A single-minded sage who has stimulated and enriched the thinking of his time in education,philosophy, and in all the arts of life, proclaim-ing everywhere the truly vital nature of thought as reality in the making."
 
