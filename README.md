@@ -216,3 +216,18 @@ https://web.archive.org/web/20030220093844/http://www.lead.org.cn/lead/vision/
 https://web.archive.org/web/20220728132430/http://unirule.cloud/index.php?c=article&a=type&tid=34
 ![图](https://github.com/MoslinZ/TiejunWen/blob/main/tzjjyjsindex.php.jpg)
 
+# Jing Wang
+Jing Wang
+MIT麻省理工学院新媒体行动实验室
+https://web.archive.org/web/20240108070637/http://news.sina.com.cn/w/sd/2010-10-09/133821239747_4.shtml
+Jing的维基百科
+（Jing Wang同时还是维基百科基金会委员）
+https://zh.m.wikipedia.org/wiki/%E7%8E%8B%E7%91%BE_(%E5%AD%B8%E8%80%85)
+
+https://web.archive.org/web/20100903163105/http://wikimediafoundation.org/wiki/Press_releases/Wikimedia_Foundation_Appoints_Jing_Wang_and_Mimi_Ito_May_2010
+
+（jing wang funded by Ford Foundation in Beijing）https://web.archive.org/web/20130928081131/http://wikimediafoundation.org/wiki/Advisory_Board
+
+
+必看PDF存档（温铁军晏阳初乡村建设学院与Jing Wang关系）
+https://web.archive.org/web/20160520202827/http://web.mit.edu/newmediaactionlab/www/seminars/4_22_05_wang.pdf
