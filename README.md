@@ -231,3 +231,4 @@ https://web.archive.org/web/20100903163105/http://wikimediafoundation.org/wiki/P
 
 必看PDF存档（温铁军晏阳初乡村建设学院与Jing Wang关系）
 https://web.archive.org/web/20160520202827/http://web.mit.edu/newmediaactionlab/www/seminars/4_22_05_wang.pdf
+![Jing Wang图](https://github.com/MoslinZ/TiejunWen/blob/main/1725499345149.png)
