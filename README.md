@@ -244,7 +244,7 @@ https://web.archive.org/web/20030220093844/http://www.lead.org.cn/lead/vision/
 https://web.archive.org/web/20220728132430/http://unirule.cloud/index.php?c=article&a=type&tid=34
 ![图](https://github.com/MoslinZ/TiejunWen/blob/main/tzjjyjsindex.php.jpg)
 
-# Jing Wang
+# Jing Wang 王瑾
 Jing Wang
 MIT麻省理工学院新媒体行动实验室
 https://web.archive.org/web/20240108070637/http://news.sina.com.cn/w/sd/2010-10-09/133821239747_4.shtml
