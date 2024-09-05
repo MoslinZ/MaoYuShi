@@ -130,6 +130,10 @@ https://web.archive.org/web/20051230020019/http://www.yirr.ngo.cn/
 温铁军入选2004年南方人物周刊公知榜时，晏阳初乡村建设学院官网为此头条刊登了这则“喜”报
 https://web.archive.org/web/20041009202058/http://www.yirr.ngo.cn/indexCC1.htm
 
+[面对面]温铁军:新乡村试验 CCTV专访晏阳初乡村建设学院
+采访视频https://youtu.be/7pOTSJ7QXuA?si=j23EYV-vmSJFhsX4
+
+采访新闻报道https://web.archive.org/web/20240905005949/https://news.cctv.com/china/20070129/105449.shtml
 
 2004年晏阳初乡村建设学院首批教员温铁军、茅于轼、李来来、梁从诫、李昌平、张晓山、邱建生、袁月仙、刘老石（刘湘波）、高战
 https://web.archive.org/web/20051228071842/http://www.yirr.ngo.cn/indexD1.htm
@@ -170,6 +174,16 @@ https://web.archive.org/web/20240228093632/https://www.geni.com/people/Huie-Kin/
 晏阳初从小就信奉基督教延伸阅读：（外网记录晏阳初生平不避讳信仰基督教，在中国传播时却把重要的基督教事实掩盖了）
 Yan, Yangchu (Yen, Y. C. James)
 https://web.archive.org/web/20071012200108/http://www.bdcconline.net/bdcc_stories/china/hebei/yan_yangchu.html
+
+（Harvard哈佛大学档案325页）最具争议的晏阳初“十大伟人？”捧哏奖Wikipedia争议晏阳初“十大伟人”
+https://web.archive.org/web/20240104213225/https://articles.adsabs.harvard.edu/cgi-bin/nph-iarticle_query?bibcode=1943PA.....51..323.&db_key=AST&page_ind=1&plate_select=NO&data_type=GIF&type=SCREEN_GIF&classic=YES
+约翰.杜威 公知鼻祖 『胡适』、陶行知、冯友兰共同的美国老师
+JOHN DEWEY: "A single-minded sage who has stimulated and enriched the thinking of his time in education,philosophy, and in all the arts of life, proclaim-ing everywhere the truly vital nature of thought as reality in the making."
+
+WALT DISNEY: "Whose animated cartoons, with their highly original use of sound and color and their gay anthropomorphic humor, have delighted audiences the world over."
+沃特.迪斯尼入选理由：（影视作品中隐晦宣扬同性恋文化）
+
+晏阳初入选理由：JAMES Y. C. YEN: "Illustrious inventor of a simple, easily mastered system of written Chinese whereby the book of knowledge has been opened to millions of previously illiterate minds, a leader of his great people in applying scien-tific methods to the enrichment of their soil and the increase of the fruits of their toil.”
 
 # 环境发展研究LEAD
 环境与发展研究所-简称“环发所”
