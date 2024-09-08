@@ -261,3 +261,50 @@ https://web.archive.org/web/20100903163105/http://wikimediafoundation.org/wiki/P
 必看PDF存档（温铁军晏阳初乡村建设学院与Jing Wang关系）
 https://web.archive.org/web/20160520202827/http://web.mit.edu/newmediaactionlab/www/seminars/4_22_05_wang.pdf
 ![Jing Wang图](https://github.com/MoslinZ/TiejunWen/blob/main/1725499345149.png)
+
+# 刘健芝 Lau Kin Chi
+晏阳初乡村建设学院副院长
+https://web.archive.org/web/20051228080811/http://www.yirr.ngo.cn/indexD44.htm
+
+https://web.archive.org/web/20240113074852/https://our-global-u.org/oguorg/zhs/%E5%88%9B%E5%A7%8B%E6%88%90%E5%91%98/
+
+https://web.archive.org/web/20240123230922/https://our-global-u.org/oguorg/en/founding-member-profile-lau-kin-chi/
+
+
+刘健芝，任教于香港岭南大学文化研究系。“全球和平妇女”（PWAG）瑞士总部理事兼东亚区联络处主任委员，亚洲学者交流中心（ARENA）副理事长。
+参与主编的著作：《抵抗的全球化》、《创出我们的未来：亚太区的民间汇聚》、《反思中国》、《多彩的和平：108妇女的故事》、《亚洲父权社会的复辟》、《超越金融危机：亚洲民众的另类行动》、《蒙面骑士：墨西哥副司令马科斯文集》、《庶民的研究》、《学科．知识．权力》
+参与制作“和平妇女在中国”的纪录片
+https://web.archive.org/web/20200815110903/http://www.ruralstudies.com/case_view.aspx?TypeId=138&Id=477&FId=t4:138:4
+
+https://web.archive.org/web/20230823075725/https://our-global-u.org/oguorg/zhs/%E5%88%98%E5%81%A5%E8%8A%9D/
+
+刘健芝晏阳初乡村建设学院官网“全球千名妇女争评2005年诺贝尔和平奖”组委会的声明信
+https://web.archive.org/web/20051228081617/http://www.yirr.ngo.cn/indexD64.htm
+
+高耀洁（南方系公知榜50人之一）质疑刘健芝　“妇女争评诺贝尔和平奖”
+https://web.archive.org/web/20051125082736/http://star.news.sohu.com/20051122/n240770701.shtml
+https://web.archive.org/web/20240104054527/http://news.sohu.com/20051111/n227460948.shtml
+https://web.archive.org/web/20051023004851/http://www.xys.org/xys/ebooks/others/science/dajia6/nobel13.txt
+https://web.archive.org/web/20051219121809/http://www.genderwatchina.org/pages/shownews.asp?id=1071
+https://web.archive.org/web/20051225125609/http://dszb.whdszb.com/xwbd/t20051018_686401.htm
+
+维基“和平妇女”官网
+https://web.archive.org/web/20210801045237/https://wikipeacewomen.org/wpworg/1000peacewomenhk/aboutus.html
+
+https://web.archive.org/web/20240108084847/http://wikipeacewomen.org/wpworg/zhs/
+
+国仁全球大学官网
+https://web.archive.org/web/20240108084212/https://our-global-u.org/oguorg/zhs/
+
+国仁全球大学合作伙伴
+中国社会服务发展研究中心（香港CSD）
+亚洲学者交流中心（ARENA）
+岭南大学文化研究及发展中心（CCRD）生态文化部
+国仁城乡（北京）科技发展中心
+全球和平女性-中国办事处（PWAG-中国）
+
+刘健芝亚洲学者交流中心（ARENA）副理事长，全称Asian Regional Exchange for New Alternatives（NGO）
+https://web.archive.org/web/20020707040924/http://www.arenaonline.org/About_Us/
+https://web.archive.org/web/20020802092948/http://www.arenaonline.org/
+
+
