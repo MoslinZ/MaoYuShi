@@ -307,7 +307,7 @@ https://web.archive.org/web/20240108084212/https://our-global-u.org/oguorg/zhs/
 https://web.archive.org/web/20020707040924/http://www.arenaonline.org/About_Us/
 https://web.archive.org/web/20020802092948/http://www.arenaonline.org/
 
-张兰英（国际行动援助北京办公室）
+# 张兰英（NGO国际行动援助北京办公室ActionAid）
 https://web.archive.org/web/20200921164151/http://www.ruralstudies.com/case_view.aspx?TypeId=138&Id=493&FId=t4:138:4
 https://web.archive.org/web/20170912083947/http://irrc.swu.edu.cn/s/irrc/index7/20170531/1877247.html
 https://web.archive.org/web/20240106084434/http://www.ruralstudies.com/news_view.aspx?TypeId=126&Id=615
