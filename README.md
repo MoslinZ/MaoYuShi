@@ -307,4 +307,62 @@ https://web.archive.org/web/20240108084212/https://our-global-u.org/oguorg/zhs/
 https://web.archive.org/web/20020707040924/http://www.arenaonline.org/About_Us/
 https://web.archive.org/web/20020802092948/http://www.arenaonline.org/
 
+张兰英（国际行动援助北京办公室）
+https://web.archive.org/web/20200921164151/http://www.ruralstudies.com/case_view.aspx?TypeId=138&Id=493&FId=t4:138:4
+https://web.archive.org/web/20170912083947/http://irrc.swu.edu.cn/s/irrc/index7/20170531/1877247.html
+https://web.archive.org/web/20240106084434/http://www.ruralstudies.com/news_view.aspx?TypeId=126&Id=615
+https://web.archive.org/web/20240106085036/https://www.kas.de/zh/web/china/veranstaltungsberichte/detail/-/content/die-rolle-von-nichtregierungsorganisationen-in-china
+
+
+1988年毕业于北京大学东方语言系，获语言学学士学位。毕业后留北京大学任教。后留学菲律宾，就读于菲律宾大学，并于1992年获得菲律宾大学的菲律宾语语言学硕士。1992年到2001年，她就职与晏阳初在菲律宾建立的国际乡村改造学院。在学院工作期间，她不仅有机会接触晏阳初最前沿的乡村建设理论，并能够接触到国际上不同机构的发展实践和理论。在IIRR学院工作期间，她还完成了第二个硕士学位的学习，获得了亚洲管理学院发展管理硕士。荷兰瓦格宁根大学社会学博，先后任教于北京大学、晏阳初国际乡村改造学院（IIRR）、菲律宾大学，曾任全球消除贫困联盟中国委员会主席、国际行动援助中国办公室ActionAid国家代表等多家国际组织主要负责人。    
+张兰英任西南大学中国乡村建设学院执行副院长，任北京慈海生态环保公益基金会副理事长，国际慢食协会大中华区分会荣誉秘书长。
+
+张兰英ActionAid(缩写AID)国际行动办公室等单位出资共建晏阳初乡村建设学院-院长温铁军
+https://web.archive.org/web/20060117024621/http://www.yirr.ngo.cn/indexB1.htm
+
+ActionAid国际行动办公室张兰英
+
+
+https://web.archive.org/web/20140113225430/http://www.actionaid.org.cn/about/job/5th-recuit/
+https://web.archive.org/web/20060314205523/http://www.actionaid.org/zhongwen/901.html
+https://web.archive.org/web/20070106094801/http://www.actionaid.org/zhongwen/2367.html
+https://web.archive.org/web/20140114121458/http://www.actionaid.org.cn/press/latest/sharing-dialogue/
+https://web.archive.org/web/20040612232444/http://www.chinadevelopmentbrief.com/dingo/entry.asp?mode=search&start=1&count=10&org=1513
+https://web.archive.org/web/20240107193749/https://www.toutiao.com/article/6832070345868968452/?upstream_biz=toutiao_pc&source=m_redirect&wid=1704656269314
+
+ActionAid资金来往NGO
+Open Society Foundation开放社会基金会（与新疆、香港动乱似乎千丝万缕）
+https://web.archive.org/web/20240106151716/https://www.comminit.com/opensocietyfoundation/node/5750
+Rockefeller Brothers Fund洛克菲勒基金会
+https://web.archive.org/web/20230523061344/https://www.rbf.org/grantees/actionaid
+https://web.archive.org/web/20220117162505/https://www.rbf.org/grantees/actionaid-usa
+Ford Foundation福特基金会
+https://web.archive.org/web/20230811032713/https://donations.vipulnaik.com/donorDonee.php?donor=Ford+Foundation&donee=MS-ActionAid+Denmark
+
+洛克菲勒基金会资助清华大学部分项目（碳中和：限制发展）
+https://web.archive.org/web/20211025132844/https://www.rbf.org/grantees/tsinghua-university
+$80,000 FOR 12 MONTHS AWARDED NOV 11, 2021
+For creating low-carbon development guidelines for China at the provincial and local levels
+China
+Evidence-Based Policies and Practice
+$100,000 FOR 12 MONTHS AWARDED APR 7, 2021
+For city-level research into co-benefits of emissions reductions and air pollution control
+China
+Evidence-Based Policies and Practice
+$600,000 FOR 24 MONTHS AWARDED NOV 15, 2018
+For strengthening national climate action strategy toward a net-zero emissions future
+China
+Evidence-Based Policies and Practice
+Show all (1)
+$100,056 FOR 12 MONTHS AWARDED JUL 19, 2018
+For its research on Redefining Green Bond Standards.
+China
+Evidence-Based Policies and Practice
+
+延伸
+2009年新疆乌鲁木齐的大规模暴力骚乱事件
+https://zh.wikipedia.org/zh-hans/%E4%B9%8C%E9%B2%81%E6%9C%A8%E9%BD%90%E4%B8%83%E4%BA%94%E4%BA%8B%E4%BB%B6?wprov=sfla1
+
+西方针对中国庞大的“谣言工厂”里有一个典型
+https://web.archive.org/web/20240106154418/https://news.sina.cn/2021-03-02/detail-ikftpnnz0495722.d.html
 
