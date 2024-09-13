@@ -331,11 +331,14 @@ https://web.archive.org/web/20040612232444/http://www.chinadevelopmentbrief.com/
 https://web.archive.org/web/20240107193749/https://www.toutiao.com/article/6832070345868968452/?upstream_biz=toutiao_pc&source=m_redirect&wid=1704656269314
 
 ActionAid资金来往NGO
+
 Open Society Foundation开放社会基金会（与新疆、香港动乱似乎千丝万缕）
 https://web.archive.org/web/20240106151716/https://www.comminit.com/opensocietyfoundation/node/5750
+
 Rockefeller Brothers Fund洛克菲勒基金会
 https://web.archive.org/web/20230523061344/https://www.rbf.org/grantees/actionaid
 https://web.archive.org/web/20220117162505/https://www.rbf.org/grantees/actionaid-usa
+
 Ford Foundation福特基金会
 https://web.archive.org/web/20230811032713/https://donations.vipulnaik.com/donorDonee.php?donor=Ford+Foundation&donee=MS-ActionAid+Denmark
 
