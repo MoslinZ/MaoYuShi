@@ -44,7 +44,11 @@ https://web.archive.org/web/20040907102826/http://business.sohu.com/2004/05/17/7
 
 『晏阳初乡村建设学院官网网址』https://web.archive.org/web/20060117024621/http://www.yirr.ngo.cn/indexB1.htm
 ![晏阳初乡村建设学院高清图](https://github.com/MoslinZ/TiejunWen/blob/main/indexB1.html.jpg)
-    
+
+2012年，以执行院长的身份在西南大学恢复了晏阳初1936年成立的“中国乡村建设学院”；兼任西南大学中国乡村建设学院执行院长。
+
+2013年，列入福建省百人计划兼任福建农林大学海峡乡建学院执行院长、教授、研究员。    
+
 四、主要研究课题与国际合作项目
 
 最近10年来曾先后在30多个国家和地区做学术考察交流和参加国际会议。
