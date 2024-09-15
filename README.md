@@ -335,6 +335,8 @@ https://web.archive.org/web/20140114121458/http://www.actionaid.org.cn/press/lat
 https://web.archive.org/web/20040612232444/http://www.chinadevelopmentbrief.com/dingo/entry.asp?mode=search&start=1&count=10&org=1513
 https://web.archive.org/web/20240107193749/https://www.toutiao.com/article/6832070345868968452/?upstream_biz=toutiao_pc&source=m_redirect&wid=1704656269314
 
+https://web.archive.org/web/20240915034428/http://finance.sina.com.cn/hy/20061118/17113090346.shtml
+
 ActionAid资金来往NGO
 
 Open Society Foundation开放社会基金会（与新疆、香港动乱似乎千丝万缕）
