@@ -326,7 +326,7 @@ https://web.archive.org/web/20240106085036/https://www.kas.de/zh/web/china/veran
 https://web.archive.org/web/20060117024621/http://www.yirr.ngo.cn/indexB1.htm
 
 ActionAid国际行动办公室张兰英
-
+![张兰英ActionAid](https://github.com/MoslinZ/TiejunWen/blob/main/Images/2367.html.jpg)
 
 https://web.archive.org/web/20140113225430/http://www.actionaid.org.cn/about/job/5th-recuit/
 https://web.archive.org/web/20060314205523/http://www.actionaid.org/zhongwen/901.html
