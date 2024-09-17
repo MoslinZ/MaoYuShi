@@ -3,7 +3,7 @@
 更多内幕请看超长存档👇👇👇
 https://docs.google.com/document/d/1QXx4v93P9esBfRgA5HkssuOpLUigSN11rmPwZnCVtGk/
 
-持续更新公知『公知温铁军』与『公知茅于轼』NGO履历👆👆👆
+持续更新投机分子『公知温铁军』与『公知茅于轼』NGO履历👆👆👆
 
 
 
