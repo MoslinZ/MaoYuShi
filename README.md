@@ -251,7 +251,7 @@ https://web.archive.org/web/20220728132430/http://unirule.cloud/index.php?c=arti
 ![图](https://github.com/MoslinZ/TiejunWen/blob/main/tzjjyjsindex.php.jpg)
 
 天则内部论文稿1996年 温铁军/茅于轼
-![天则内部论文稿1996年图]()
+![天则内部论文稿1996年图](https://github.com/MoslinZ/TiejunWen/blob/main/paper96.html.jpg)
 https://web.archive.org/web/20030411012600/http://www.unirule.org.cn/Academia/paper96.html
 
 # Jing Wang 王瑾
