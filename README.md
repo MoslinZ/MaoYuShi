@@ -250,6 +250,10 @@ https://web.archive.org/web/20030220093844/http://www.lead.org.cn/lead/vision/
 https://web.archive.org/web/20220728132430/http://unirule.cloud/index.php?c=article&a=type&tid=34
 ![图](https://github.com/MoslinZ/TiejunWen/blob/main/tzjjyjsindex.php.jpg)
 
+天则内部论文稿1996年 温铁军/茅于轼
+![天则内部论文稿1996年图]()
+https://web.archive.org/web/20030411012600/http://www.unirule.org.cn/Academia/paper96.html
+
 # Jing Wang 王瑾
 Jing Wang
 MIT麻省理工学院新媒体行动实验室
