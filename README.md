@@ -65,7 +65,7 @@ https://web.archive.org/web/20040907102826/http://business.sohu.com/2004/05/17/7
 
 2004年搜狐网公知榜50人特别专题
 https://web.archive.org/web/20041014000431/http://business.sohu.com/s2004/zhishifenzi50.shtml
-![南方人物周刊第七期公共知识分子50人高清图](https://github.com/MoslinZ/TiejunWen/blob/main/zhishifenzi50.shtml2160p.jpg)
+![南方人物周刊第七期公共知识分子50人高清图]([https://github.com/MoslinZ/TiejunWen/blob/main/zhishifenzi50.shtml2160p.jpg](https://github.com/MoslinZ/TiejunWen/blob/main/zhishifenzi50.shtml2160p.jpg))
 
 2024年维基百科wikipedia『温铁军』简体中文版修正
 https://web.archive.org/web/20240322023226/https://zh.m.wikipedia.org/wiki/%E6%B8%A9%E9%93%81%E5%86%9B
