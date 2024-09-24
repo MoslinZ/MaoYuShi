@@ -1,5 +1,5 @@
 温铁军和茅于轼
-# 公知温铁军现形记与茅于轼NGO履历梳理【温铁军github】『茅于轼github』
+# 公知温铁军现形记与茅于轼NGO履历梳理【温铁军github】『茅于轼github』Wen Tiejun
 更多内幕请看超长存档👇👇👇
 https://docs.google.com/document/d/1QXx4v93P9esBfRgA5HkssuOpLUigSN11rmPwZnCVtGk/
 
