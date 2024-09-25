@@ -237,7 +237,7 @@ https://web.archive.org/web/20030404205422/http://www.grchina.com/qiang/lead/ori
 
 温铁军2001年在LEAD-China交流研讨(红色标注区) Dr. Wen Tiejun, Editor-in-Chief, China Reforms Journal
 https://web.archive.org/web/20080828191036/http://www.lead.org.cn/leadcn/national/curriculum/year1/cohort9.htm
-![LEAD图](https://github.com/MoslinZ/TiejunWen/blob/main/Images/cohort9.html.jpg)
+![LEAD图](https://github.com/MoslinZ/TiejunWen/blob/main/cohort9.jpg)
 
 IED/LEAD-China 举办第五期“可持续发展领导型人才国内培训班”茅于轼、温铁军、李来来
 https://web.archive.org/web/20080828190513/http://www.lead.org.cn/leadcn/national/curriculum/year1/LEADChina_5th_zh.htm
@@ -249,10 +249,10 @@ https://web.archive.org/web/20030220093844/http://www.lead.org.cn/lead/vision/
 # 天则经济研究所
 以茅于轼为首的中国带路党大本营【【天则经济研究所】】超过百人学术委员会研究员温铁军位列其中
 https://web.archive.org/web/20220728132430/http://unirule.cloud/index.php?c=article&a=type&tid=34
-![图](https://github.com/MoslinZ/TiejunWen/blob/main/tzjjyjsindex.php.jpg)
+![图](https://github.com/MoslinZ/TiejunWen/blob/main/tzjjyjsindex.jpg)
 
 天则内部论文稿1996年 温铁军/茅于轼
-![天则内部论文稿1996年图](https://github.com/MoslinZ/TiejunWen/blob/main/paper96.html.jpg)
+![天则内部论文稿1996年图](https://github.com/MoslinZ/TiejunWen/blob/main/paper96.jpg)
 https://web.archive.org/web/20030411012600/http://www.unirule.org.cn/Academia/paper96.html
 
 《中国制度变迁的案例研究》第二期『茅于轼温铁军』
