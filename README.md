@@ -75,7 +75,7 @@ https://web.archive.org/web/20021230200601/http://www.unirule.org.cn/symposium/s
 3 (43-45)
 
 https://d.wanfangdata.com.cn/periodical/QK200401951166
-![茅于轼温铁军放贷图]()
+![茅于轼温铁军放贷图](https://github.com/MoslinZ/MaoYuShi/blob/main/QK200401951166.jpg)
 
 ### :blush:详情介绍
 搜狐网2004年温铁军专栏个人详情
