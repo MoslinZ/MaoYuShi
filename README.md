@@ -77,6 +77,10 @@ https://web.archive.org/web/20021230200601/http://www.unirule.org.cn/symposium/s
 https://d.wanfangdata.com.cn/periodical/QK200401951166
 ![茅于轼温铁军放贷图](https://github.com/MoslinZ/MaoYuShi/blob/main/QK200401951166.jpg)
 
+茅于轼早期放贷雏形
+https://web.archive.org/web/20051228081844/http://www.yirr.ngo.cn/indexE14.htm
+![茅于轼放贷雏形](https://github.com/MoslinZ/MaoYuShi/blob/main/indexE14.htm.jpg)
+
 ### :blush:详情介绍
 搜狐网2004年温铁军专栏个人详情
 https://web.archive.org/web/20040907102826/http://business.sohu.com/2004/05/17/79/article220157998.shtml
@@ -149,10 +153,6 @@ https://web.archive.org/web/20040803120657/http://business.sohu.com/wentiejun.sh
 搜狐财经【中国经济思想库】茅于轼、温铁军、林毅夫、郎咸平等人
 https://web.archive.org/web/20040825035522/http://business.sohu.com:80/s221226209.shtml
 ![中国经济思想库高清图](https://github.com/MoslinZ/TiejunWen/blob/main/s221226209.shtml.jpg)
-
-茅于轼早期放贷雏形
-https://web.archive.org/web/20051228081844/http://www.yirr.ngo.cn/indexE14.htm
-![茅于轼放贷雏形](https://github.com/MoslinZ/MaoYuShi/blob/main/indexE14.htm.jpg)
 
 ### :surfer:经历
 
