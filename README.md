@@ -150,6 +150,10 @@ https://web.archive.org/web/20040803120657/http://business.sohu.com/wentiejun.sh
 https://web.archive.org/web/20040825035522/http://business.sohu.com:80/s221226209.shtml
 ![中国经济思想库高清图](https://github.com/MoslinZ/TiejunWen/blob/main/s221226209.shtml.jpg)
 
+茅于轼早期放贷雏形
+https://web.archive.org/web/20051228081844/http://www.yirr.ngo.cn/indexE14.htm
+![茅于轼放贷雏形](https://github.com/MoslinZ/MaoYuShi/blob/main/indexE14.htm.jpg)
+
 ### :surfer:经历
 
 |           |                                                              |
