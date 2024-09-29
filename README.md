@@ -236,16 +236,13 @@ https://huiekin.org/
 https://web.archive.org/web/20200929093619/https://huiekin.org/
 
 晏阳初Y. C. James Yen 晏陽初
-https://www.geni.com/people/Y-C-James-Yen-%E6%99%8F%E9%99%BD%E5%88%9D/6000000021412122657
 https://web.archive.org/web/20240228090050/https://www.geni.com/people/Y-C-James-Yen-%E6%99%8F%E9%99%BD%E5%88%9D/6000000021412122657
 
 许雅丽Alice Ordania Yen
  (晏阳初之妻)
-https://www.geni.com/people/Alice-Yen/6000000021412171455
 https://web.archive.org/web/20240228105236/https://www.geni.com/people/Alice-Yen/6000000021412171455
 
 许芹Huie Kin（晏阳初之岳父）
-https://www.geni.com/people/Huie-Kin/6000000082772592110
 https://web.archive.org/web/20240228093632/https://www.geni.com/people/Huie-Kin/6000000082772592110
 
 晏阳初从小就信奉基督教延伸阅读：（外网记录晏阳初生平不避讳信仰基督教，在中国传播时却把重要的基督教事实掩盖了）
