@@ -2,7 +2,7 @@
 
 篇幅有限，更多内容请看超长存档👇👇👇
 https://docs.google.com/document/d/1QXx4v93P9esBfRgA5HkssuOpLUigSN11rmPwZnCVtGk/
-文档持续更新温铁军茅于轼NGO履历👆👆👆
+文档持续更新👆👆👆
 
 # 公知茅于轼
 简介选自茅于轼搜狐网存档
