@@ -542,6 +542,20 @@ https://web.archive.org/web/20240125215126/https://baike.baidu.com/item/%E9%99%B
 1916年2月16日
 于哥伦比亚大学哈特莱大楼1010号
 
+# 天恒研究所美国能源基金会、香港乐施会（Oxfam Hong Kong）
+https://web.archive.org/web/20040918203139/http://www.snisd.org.cn/
+
+
+# 中国发展简报
+https://web.archive.org/web/20040923040429/http://www.chinadevelopmentbrief.com/
+张兰英ActionAid国际行动援助
+https://web.archive.org/web/20040816025504/http://www.chinadevelopmentbrief.com/dingo/entry.asp?mode=toc&start=1&count=25&org=1513&letter=A
+福特基金会
+https://web.archive.org/web/20040813101830/http://www.chinadevelopmentbrief.com/dingo/entry.asp?mode=toc&start=47&count=25&org=1469&letter=F
+香港乐施会
+https://web.archive.org/web/20040818170047/http://www.chinadevelopmentbrief.com/dingo/entry.asp?mode=toc&start=111&count=25&org=1491&letter=O
+
+
 # 北京乐平基金会
 乐平基金2017年工作报告
 https://web.archive.org/web/20240117182723/http://www.lepingfoundation.org.cn/upload/20180608/5b19e56d5448f.pdf
