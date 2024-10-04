@@ -473,7 +473,7 @@ http://zqb.cyol.com/content/2004-07/14/content_907432.htm
 https://web.archive.org/web/20230720034104/http://finance.people.com.cn/n/2015/0323/c1004-26732619.html
 
 https://web.archive.org/web/20230908162244/http://www.xinhuanet.com/politics/2015-03/23/c_127608513.htm
-
+![王海：巨款买假货1年赚400万](https://github.com/MoslinZ/MaoYuShi/blob/main/c_127608513.htm.jpg)
 王海的终极目标
 但他的终极梦想是做中国的消费者维权委员会，这个被他称为“孩儿他妈协会”的组织将自己成立第三方独立检测实验室，消费者拿来商品就可以做检测，是那种真正地为消费者维权的机构。
 https://web.archive.org/web/20230724022831/http://news.sohu.com/20160315/n440428641.shtml
