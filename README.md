@@ -466,7 +466,7 @@ https://web.archive.org/web/20030811195958/http://www.unirule.org.cn/information
 
 # 晏阳初乡村建设学院友情链接（主线好像都与基督教相关）
 https://web.archive.org/web/20041009134052/http://www.yirr.ngo.cn/
-
+![友情链接网站](https://github.com/MoslinZ/MaoYuShi/blob/main/www.yirr.ngo.cn2%20(1).jpg)
 
 爱德基金会（在中国推广基督教）现存
 https://web.archive.org/web/20041010214429/http://www.amityfoundation.org.cn/index/index.php
