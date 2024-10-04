@@ -464,6 +464,28 @@ https://web.archive.org/web/20030811221009/http://www.unirule.org.cn/policy/govr
 茅于轼小额信贷运营实例（水龙头）
 https://web.archive.org/web/20030811195958/http://www.unirule.org.cn/information/Reportonlst.htm
 
+# 王海
+中国青年报“成长中的王海”
+王海从出道至今一直是个有争议的人，他走的是一条不被人看好的路。但他愣是在这条充斥着敌意、责难和陷阱的路上走了9年，而且每一步都没偏离自己的目标。他说自己幸运，在这条路上，每逢坎坷必有人相助，武高汉、何山、刘永行（希望集团刘氏三兄弟）、茅于轼、秦兵、陈幽泓……否则，他大概不会有今天。
+http://zqb.cyol.com/content/2004-07/14/content_907432.htm
+
+职业打假人王海：巨款买假货1年赚400万(图)
+https://web.archive.org/web/20230720034104/http://finance.people.com.cn/n/2015/0323/c1004-26732619.html
+
+https://web.archive.org/web/20230908162244/http://www.xinhuanet.com/politics/2015-03/23/c_127608513.htm
+
+王海的终极目标
+但他的终极梦想是做中国的消费者维权委员会，这个被他称为“孩儿他妈协会”的组织将自己成立第三方独立检测实验室，消费者拿来商品就可以做检测，是那种真正地为消费者维权的机构。
+https://web.archive.org/web/20230724022831/http://news.sohu.com/20160315/n440428641.shtml
+
+茅于轼关心王海南宁发癫事件
+https://web.archive.org/web/20240604051747/https://news.sina.cn/sa/2000-09-27/detail-ikknscsh9785779.d.html?from=wap
+
+新浪网王海专题报道
+2000年9月20日上午，王海因未付账就退出下榻的南宁国际大酒店，与酒店保安发生激烈冲突，被警方带回派出所后，突然又脱下外裤只穿着小内裤冲出所外，后被干警送入南宁市第五人民医院。随后，王海精神失常的消息沸沸扬扬地传开了……
+https://web.archive.org/web/20230908162417/http://news.2008.sina.com.cn/society/wanghai/index.shtml?from=wap
+
+
 # 晏阳初乡村建设学院友情链接（主线好像都与基督教相关）
 https://web.archive.org/web/20041009134052/http://www.yirr.ngo.cn/
 ![友情链接网站](https://github.com/MoslinZ/MaoYuShi/blob/main/www.yirr.ngo.cn2%20(1).jpg)
