@@ -436,7 +436,7 @@ https://web.archive.org/web/20040819043109/http://www.china-review.com/fwsq/zsg.
 https://web.archive.org/web/20200703142414/http://www.huayilawfirm.com/?team=%e7%bd%97%e7%bf%94
 
 https://web.archive.org/web/20240321055315/http://www.12348.gov.cn/sfbMobile/app/page/people/lawyer/basic/detail/lawyer_basic_detail.html?pkid=7a0a7f977a904e48b8815fa0ff722463&timestamp-1711000359347=1711000359347
-
+![罗翔华一](https://github.com/MoslinZ/MaoYuShi/blob/main/luoxiang-huayi.jpg)
 https://web.archive.org/web/20241004053019/http://www.huayilawfirm.com/?p=2187
 https://web.archive.org/web/20241004053216/http://www.huayilawfirm.com/?p=2178
 https://web.archive.org/web/20241004053057/http://www.huayilawfirm.com/?p=2175
