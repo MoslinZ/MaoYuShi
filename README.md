@@ -79,6 +79,7 @@ https://d.wanfangdata.com.cn/periodical/QK200401951166
 茅于轼早期放贷雏形
 https://web.archive.org/web/20051228081844/http://www.yirr.ngo.cn/indexE14.htm
 ![茅于轼放贷雏形](https://github.com/MoslinZ/MaoYuShi/blob/main/indexE14.htm.jpg)
+茅于轼水龙头基金项目英文原版
 https://web.archive.org/web/20030811195958/http://www.unirule.org.cn/information/Reportonlst.htm
 ![茅于轼水龙头基金项目英文版](https://github.com/MoslinZ/MaoYuShi/blob/main/Reportonlst.htm.jpg)
 ### :blush:详情介绍
