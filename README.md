@@ -392,3 +392,71 @@ https://zh.wikipedia.org/zh-hans/%E4%B9%8C%E9%B2%81%E6%9C%A8%E9%BD%90%E4%B8%83%E
 西方针对中国庞大的“谣言工厂”里有一个典型
 https://web.archive.org/web/20240106154418/https://news.sina.cn/2021-03-02/detail-ikftpnnz0495722.d.html
 
+# 北京华一律师事务所
+北京华一律师事务所
+公知 江平1999年为华一律所提词
+https://web.archive.org/web/20200703142423/http://www.huayilawfirm.com/?page_id=1986
+
+公知榜50人之一：江平
+https://web.archive.org/web/20041014000431/http://business.sohu.com/s2004/zhishifenzi50.shtml
+
+北京华一律所与公知茅于轼天则经济研究所紧密合作
+https://web.archive.org/web/20240321062547/https://baike.sogou.com/v72173348.htm?ch=frombaikevr&fromTitle=%E5%8C%97%E4%BA%AC%E5%B8%82%E5%8D%8E%E4%B8%80%E5%BE%8B%E5%B8%88%E4%BA%8B%E5%8A%A1%E6%89%80
+
+
+天则-华一资本市场论坛:聚焦保险资金入市 来源：天则经济研究所 
+https://web.archive.org/web/20240321063046/http://economics.efnchina.com/show-1538-50349-1.html
+
+天则.华一资本市场交锋会（冬季）　邀请函
+https://web.archive.org/web/20050209074900/https://business.sohu.com/20041215/n223508820.shtml
+
+天则·华一资本市场交锋会(开幕词)
+https://web.archive.org/web/20040726232041/http://business.sohu.com/2004/06/26/38/article220723874.shtml
+
+搜狐网 天则.华一资本市场论坛专栏
+https://web.archive.org/web/20040726230830/http://business.sohu.com/7/0604/84/column220718498.shtml
+
+茅于轼 天则.华一资本市场论坛
+https://web.archive.org/web/20040725042743/http://www.china-review.com/fwsq/mys.asp
+
+https://web.archive.org/web/20040613114854/http://business.sohu.com/2004/04/05/89/article219738988.shtml
+
+主持人（茅于轼）：
+
+　　现在我宣布天则所跟华一律师事务所共同举办的资本市场论坛现在开始。
+https://web.archive.org/web/20040613094242/http://business.sohu.com/2004/04/05/86/article219738641.shtml
+
+
+张曙光（天则经济研究所所长.铁道部贪官）
+https://web.archive.org/web/20040819043109/http://www.china-review.com/fwsq/zsg.asp
+
+# 罗翔（华一律师事务所）
+https://web.archive.org/web/20200703142414/http://www.huayilawfirm.com/?team=%e7%bd%97%e7%bf%94
+
+http://www.12348.gov.cn/sfbMobile/app/page/people/lawyer/basic/detail/lawyer_basic_detail.html?pkid=7a0a7f977a904e48b8815fa0ff722463&timestamp-1711000359347=1711000359347
+
+https://web.archive.org/web/20240321055315/http://www.12348.gov.cn/sfbMobile/app/page/people/lawyer/basic/detail/lawyer_basic_detail.html?pkid=7a0a7f977a904e48b8815fa0ff722463&timestamp-1711000359347=1711000359347
+
+
+
+以茅于轼为首的中国带路党大本营【【天则经济研究所】】超过百人学术委员会研究员温铁军位列其中
+https://web.archive.org/web/20030811181542/http://www.unirule.org.cn/Introduction/colleague.html#teyue
+
+https://web.archive.org/web/20220728132430/http://unirule.cloud/index.php?c=article&a=type&tid=34
+
+北京天则经济研究所（北京大象文化有限公司）
+https://web.archive.org/web/20040803132840/http://business.sohu.com/2003/12/24/56/article217365689.shtml
+北京天则经济研究所由经济学家茅于轼、张曙光、盛洪、樊纲、唐寿宁与北京大象文化有限公司共同发起，于1993年7月创立。现任理事长张曙光教授，所长盛洪教授，学术委员会主席张曙光教授，常务理事茅于轼教授。
+此外，天则经济研究所还与包括世界银行国际货币基金组织，世界银行国际金融公司、亚洲开发银行、非洲开发银行、福特基金会、琼斯基金会、美国商会国际民营企业中心、亚洲基金会等国际组织，及各国驻华使馆有着不同类型的合作关系。 丰富雄厚的人力资源和广泛深入的社会联系相得益彰，使天则经济研究所在学术活动与社会服务中发挥着独特作用。
+
+天则经济研究所十周年庆典系列学术活动
+任志强：房地产与金融政策——天则华一资本市场论坛
+江南证券 天则经济研究所 北京市华一律师事务所 共同主办
+
+https://web.archive.org/web/20030724182126/http://www.unirule.org.cn/notice/notice-capital2003-2.htm
+
+天则所教育体制改革研讨会
+https://web.archive.org/web/20030811221009/http://www.unirule.org.cn/policy/govref-4-1.htm
+
+茅于轼小额信贷运营实例（水龙头）
+https://web.archive.org/web/20030811195958/http://www.unirule.org.cn/information/Reportonlst.htm
