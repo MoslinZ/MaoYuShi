@@ -392,6 +392,40 @@ https://zh.wikipedia.org/zh-hans/%E4%B9%8C%E9%B2%81%E6%9C%A8%E9%BD%90%E4%B8%83%E
 西方针对中国庞大的“谣言工厂”里有一个典型
 https://web.archive.org/web/20240106154418/https://news.sina.cn/2021-03-02/detail-ikftpnnz0495722.d.html
 
+
+# 福特基金会国际奖学金项目
+福特基金会国际奖学金项目在中国主要面向那些缺少深造机会的人群，例如：贫困人群、少数民族及妇女。
+2003年福特基金官网：https://web.archive.org/web/20031029162610/http://www.china-ifp.org/introduction.htm
+https://web.archive.org/web/20051229172432/http://www.china-ifp.org/field.htm
+https://web.archive.org/web/20051227043017/http://www.china-ifp.org/list.htm
+
+中国多个大学高校“福特基金会国际奖学金项目”开始申请通告
+中央财经大学https://web.archive.org/web/20230811202529/http://kyc.cufe.edu.cn/info/1011/1415.htm
+兰州大学
+https://web.archive.org/web/20230811202335/https://news.lzu.edu.cn/c/200504/lmc1638.html
+中国人民大学
+https://web.archive.org/web/20230811202125/http://econ.ruc.edu.cn/dtjs/dtdt/e17d0c4db2e3423c92e7281e08a0db2d.htm
+厦门大学
+https://web.archive.org/web/20230811202017/https://se.xmu.edu.cn/info/1060/10969.htm
+东北师范大学
+https://web.archive.org/web/20230810052348/http://wzhongxin.nenu.edu.cn/info/1052/1100.htm
+
+南方人物周刊【福特基金国际奖学金项目】特别报道
+https://web.archive.org/web/20070220035231/http://www.nanfangdaily.com.cn/rwzk/20061211/tbbd/200612270089.asp
+
+南方人物周刊：环保NGO反对中国建设三峡水电站
+https://web.archive.org/web/20040904181624/http://www.nanfangdaily.com.cn/rwzk/20040825/tbbd/200409020002.asp
+南方人物周刊：李丹河南艾滋病救助组织“东珍学校”，有NGO支持资金完全不是问题。
+https://web.archive.org/web/20040904181627/http://www.nanfangdaily.com.cn/rwzk/20040825/tbbd/200409020003.asp
+
+李丹维基百科（现在转变成搞人权问题和女权扩张）
+https://zh.m.wikipedia.org/wiki/%E6%9D%8E%E4%B8%B9_(%E5%BF%97%E6%84%BF%E8%80%85)
+高耀洁评价李丹—中国疾病预防控制中心性病艾滋病预防控制中心
+https://web.archive.org/web/20240112055106/https://ncaids.chinacdc.cn/zlgh/hdjz6/200410/t20041029_1070383.htm
+
+南方周末采访报道李丹—搜狐网
+https://web.archive.org/web/20240112055155/http://news.sohu.com/2004/02/19/31/news219133156.shtml
+
 # 北京华一律师事务所
 北京华一律师事务所
 公知 江平1999年为华一律所提词
