@@ -438,7 +438,10 @@ http://www.12348.gov.cn/sfbMobile/app/page/people/lawyer/basic/detail/lawyer_bas
 
 https://web.archive.org/web/20240321055315/http://www.12348.gov.cn/sfbMobile/app/page/people/lawyer/basic/detail/lawyer_basic_detail.html?pkid=7a0a7f977a904e48b8815fa0ff722463&timestamp-1711000359347=1711000359347
 
-
+https://web.archive.org/web/20241004053019/http://www.huayilawfirm.com/?p=2187
+https://web.archive.org/web/20241004053216/http://www.huayilawfirm.com/?p=2178
+https://web.archive.org/web/20241004053057/http://www.huayilawfirm.com/?p=2175
+https://web.archive.org/web/20241004053052/http://www.huayilawfirm.com/?page_id=1590
 
 以茅于轼为首的中国带路党大本营【【天则经济研究所】】超过百人学术委员会研究员温铁军位列其中
 https://web.archive.org/web/20030811181542/http://www.unirule.org.cn/Introduction/colleague.html#teyue
