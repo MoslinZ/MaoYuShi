@@ -523,7 +523,7 @@ https://web.archive.org/web/20230908162417/http://news.2008.sina.com.cn/society/
 https://web.archive.org/web/20041009134052/http://www.yirr.ngo.cn/
 ![友情链接网站](https://github.com/MoslinZ/MaoYuShi/blob/main/www.yirr.ngo.cn2%20(1).jpg)
 
-爱德基金会（在中国推广基督教）现存
+# 爱德基金会（在中国推广基督教）现存
 https://web.archive.org/web/20041010214429/http://www.amityfoundation.org.cn/index/index.php
 1995.07 爱德印刷有限公司完成一千万册《圣经》
 https://web.archive.org/web/20041029022240/http://www.amityfoundation.org.cn/html/jgjj-a1985.htm
