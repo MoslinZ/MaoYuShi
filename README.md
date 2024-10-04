@@ -474,7 +474,7 @@ https://web.archive.org/web/20041010214429/http://www.amityfoundation.org.cn/ind
 https://web.archive.org/web/20041029022240/http://www.amityfoundation.org.cn/html/jgjj-a1985.htm
 https://web.archive.org/web/20041028203030/http://www.amityfoundation.org.cn/html/jgjj.htm
 https://web.archive.org/web/20041029022503/http://www.amityfoundation.org.cn/html/jgjj-d.htm
-
+![基督成员包括政府官员](https://github.com/MoslinZ/MaoYuShi/blob/main/jgjj-d.htm.jpg)
 爱德基金董事长：
 丁光训
 全国政协副主席
