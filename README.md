@@ -541,3 +541,20 @@ https://web.archive.org/web/20240125215126/https://baike.baidu.com/item/%E9%99%B
 
 1916年2月16日
 于哥伦比亚大学哈特莱大楼1010号
+
+# 北京乐平基金会
+乐平基金2017年工作报告
+https://web.archive.org/web/20240117182723/http://www.lepingfoundation.org.cn/upload/20180608/5b19e56d5448f.pdf
+乐平基金2019年工作报告
+https://web.archive.org/web/20240117182723/http://www.lepingfoundation.org.cn/upload/20210629/60daa05972c7f.pdf
+乐平基金2021年工作报告（马云2020年退出乐平基金理事会）
+https://web.archive.org/web/20240117182723/http://www.lepingfoundation.org.cn/upload/20211019/616e3eb79ce1f.pdf
+
+乐平基金理事会：柳传志1944、茅于轼1929、秦晖1953、潘石屹1963、吴敬琏1930、张维迎1959、马云1964、梁在中1984（三一集团有限公司董事）、周庆治1955（上海南都董事长）等等
+
+乐平基金监事：任志强1951、傅娆娆1974、朱英璜1943（中国日报前总编辑）
+
+# 雷军微博存档：
+②https://vk.com/wall842534280_23
+③https://drive.google.com/drive/folders/143fB_Qob1LuMAzpo4yF8V1vEVrM3Ffm8
+④https://disk.yandex.ru/d/-VgNIqMoLY7iGg
