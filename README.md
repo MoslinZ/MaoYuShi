@@ -424,6 +424,7 @@ https://web.archive.org/web/20040613114854/http://business.sohu.com/2004/04/05/8
 主持人（茅于轼）：
 
 　　现在我宣布天则所跟华一律师事务所共同举办的资本市场论坛现在开始。
+![宣布天则所跟华一律师事务所合作](https://github.com/MoslinZ/MaoYuShi/blob/main/article219738641.shtml.jpg)
 https://web.archive.org/web/20040613094242/http://business.sohu.com/2004/04/05/86/article219738641.shtml
 
 
