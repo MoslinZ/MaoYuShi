@@ -65,7 +65,7 @@ https://web.archive.org/web/20030411012600/http://www.unirule.org.cn/Academia/pa
 
 《中国制度变迁的案例研究》第二期『茅于轼温铁军』
 https://web.archive.org/web/20030201225715/http://www.unirule.org.cn/Academia/institution-case.html
-
+![天则所中国制度变迁](https://github.com/MoslinZ/MaoYuShi/blob/main/institution-case.html_1.jpg)
 1995年天则双周学术讨论会『茅于轼温铁军』
 https://web.archive.org/web/20021230200601/http://www.unirule.org.cn/symposium/sympo95.html
 
