@@ -510,7 +510,7 @@ https://web.archive.org/web/20041029022503/http://www.amityfoundation.org.cn/htm
 https://web.archive.org/web/20040928203352/http://www.21xz.org.cn/Article_Show.asp?ArticleID=828
 https://zh.wikipedia.org/zh-hans/%E9%99%B6%E8%A1%8C%E7%9F%A5?wprov=sfla1
 https://web.archive.org/web/20240125215126/https://baike.baidu.com/item/%E9%99%B6%E8%A1%8C%E7%9F%A5/843052
-
+![陶行知基督徒](https://github.com/MoslinZ/MaoYuShi/blob/main/Article_Show.asp.jpg)
 给哥伦比亚大学师范学院院长J·E·罗素的一封信
 亲爱的罗素院长：
 拜复，承蒙2月11日来信，为向寄赠利文斯顿奖学金的诸位，简单地谈一下我的经历与未来的抱负，高兴地特此奉复。
