@@ -82,7 +82,7 @@ https://web.archive.org/web/20051228081844/http://www.yirr.ngo.cn/indexE14.htm
 茅于轼水龙头基金项目英文原版
 https://web.archive.org/web/20030811195958/http://www.unirule.org.cn/information/Reportonlst.htm
 ![茅于轼水龙头基金项目英文版](https://github.com/MoslinZ/MaoYuShi/blob/main/Reportonlst.htm.jpg)
-### :blush:三农公知温铁军详情介绍
+### :blush:“三农”公知温铁军详情介绍
 搜狐网2004年温铁军专栏个人详情
 https://web.archive.org/web/20040907102826/http://business.sohu.com/2004/05/17/79/article220157998.shtml
 
