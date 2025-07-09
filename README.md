@@ -602,6 +602,11 @@ https://web.archive.org/web/20240117182723/http://www.lepingfoundation.org.cn/up
 乐平基金监事：任志强1951、傅娆娆1974、朱英璜1943（中国日报前总编辑）
 
 # 雷军微博存档：
+https://archive.org/download/2023-9-2025-6/%E9%9B%B7%E5%86%9B%E5%BE%AE%E5%8D%9A%E5%AD%98%E6%A1%A32023%E5%B9%B49%E6%9C%88%E8%87%B32025%E5%B9%B46%E6%9C%88.zip
+
+https://github.com/MoslinZ/LeiJun
+
 https://drive.google.com/drive/folders/143fB_Qob1LuMAzpo4yF8V1vEVrM3Ffm8
 
 https://disk.yandex.ru/d/-VgNIqMoLY7iGg
+
